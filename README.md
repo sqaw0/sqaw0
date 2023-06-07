@@ -1,0 +1,31 @@
+Hi, I'm learn and comprehend Termux.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+It's all what i'm doing.
